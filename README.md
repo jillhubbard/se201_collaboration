@@ -3,14 +3,7 @@
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
 # Mac Miller - Best Day Ever
-<<<<<<< HEAD
-<<<<<<< HEAD
->>>>>>> 26f73a7d9d526b54f2d338727f60cef0eda1300d
-=======
->>>>>>> 769f803d1463c23cd2a9e79c701caf73b4669b9d
->>>>>>> b8986615179ce959762c9929a5f55fe0beebb49c
-=======
->>>>>>> f6d62d69b93bff8d14ff442f90ea42c703a83d0a
+
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
