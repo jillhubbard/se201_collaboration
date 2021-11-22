@@ -1,4 +1,4 @@
-# Mac n cheese - Best Day Ever
+# Mac n cheese - ok-est Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
