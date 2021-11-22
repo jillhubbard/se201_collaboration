@@ -1,3 +1,7 @@
+# Table of contents
+* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
+
 # Mac Miller - Best Day Ever
 I never take a day off
 
@@ -62,7 +66,7 @@ Your heart's been aching but you're too shy to say it<br>
 Inside we both know what's been going on<br>
 We know the game and we're gonna play it<br>
 And if you ask me how I'm feeling<br>
-Don't tell me you're too blind to see<br>
+Help I'm trapped in this file, please let me out<br>
 
 Never gonna give you up<br>
 Never gonna let you down<br>
