@@ -1,13 +1,8 @@
-# Mac n cheese - ok-est Day Ever
 # Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
-* [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
-=======
-# Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Mac Miller - Best Day Ever](#mac-miller---#mac-n-cheese---ok-est-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
-# Mac n cheese - Best Day Ever
+# Mac n cheese - ok-est Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
