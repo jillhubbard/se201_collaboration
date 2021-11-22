@@ -1,3 +1,7 @@
+# Table of contents
+* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
+
 # Mac Miller - Best Day Ever
 I never take a day off
 
