@@ -1,16 +1,16 @@
-<<<<<<< HEAD
-# Mac n cheese - Best Day Ever
-=======
 # Table of contents
 * [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
 # Mac Miller - Best Day Ever
 <<<<<<< HEAD
+<<<<<<< HEAD
 >>>>>>> 26f73a7d9d526b54f2d338727f60cef0eda1300d
 =======
 >>>>>>> 769f803d1463c23cd2a9e79c701caf73b4669b9d
 >>>>>>> b8986615179ce959762c9929a5f55fe0beebb49c
+=======
+>>>>>>> f6d62d69b93bff8d14ff442f90ea42c703a83d0a
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
@@ -83,6 +83,7 @@ Never gonna make you cry<br>
 Never gonna say goodbye<br>
 Never gonna tell a lie and hurt you<br>
 
+Never gonna give you up<br>
 Never gonna give you up<br>
 Never gonna let you down<br>
 Never gonna run around and desert you<br>
