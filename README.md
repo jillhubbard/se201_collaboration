@@ -41,7 +41,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Boy, my life is Most Dope
+Man, my life is Most Dope
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
