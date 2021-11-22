@@ -41,7 +41,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Boy, my life is Most Dope
+Man, my life is Most Dope
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
@@ -75,6 +75,7 @@ Never gonna make you cry<br>
 Never gonna say goodbye<br>
 Never gonna tell a lie and hurt you<br>
 
+Never gonna give you up<br>
 Never gonna give you up<br>
 Never gonna let you down<br>
 Never gonna run around and desert you<br>
