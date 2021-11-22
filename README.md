@@ -1,23 +1,27 @@
+<<<<<<< HEAD
+# Mac n cheese - Best Day Ever
+=======
 # Table of contents
 * [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
 # Mac Miller - Best Day Ever
+>>>>>>> 769f803d1463c23cd2a9e79c701caf73b4669b9d
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
 
 Rock like Aesop, light the weed and take off
 
-So high I cannot see, Adolf
+So high I cannot see, [redacted]
 
-Now I got these rappers all breakin' up a sweat
+Now I don't got these rappers all breakin' up a sweat
 
 Because every time I get up on the mike, everything is in order.
 
 And I learned it from the best, always dressed in somethin' fresh
 
-Lookin' for a little dime, big butt and nice chest
+Lookin' for a little dime, butt and nice chest
 
 Yes, they heard I used to rock Guess
 
