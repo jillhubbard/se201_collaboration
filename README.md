@@ -5,7 +5,7 @@ Work around the clock, my engineer gettin' paid off
 
 Rock like Aesop, light the weed and take off
 
-So high I cannot see, Adolf
+So high I cannot see, [redacted]
 
 Now I got these rappers all breakin' up a sweat
 
