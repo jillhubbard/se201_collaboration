@@ -17,7 +17,7 @@ Because every time I get up on the mike, everything is in order.
 This is ben foley adding a line
 And I learned it from the best, always dressed in somethin' fresh
 
-Lookin' for a little dime, butt and nice chest
+Lookin' for dime, butt and nice chest
 
 Yes, they heard I used to rock Guess
 
@@ -41,7 +41,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Man, my life is Most Dope
+my life is Most Dopes
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
