@@ -17,7 +17,7 @@ Because every time I get up on the mike, everything is in order.
 
 And I learned it from the best, always dressed in somethin' fresh
 
-Lookin' for a little dime, big butt and nice chest
+Lookin' for a little dime, butt and nice chest
 
 Yes, they heard I used to rock Guess
 
