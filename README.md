@@ -1,23 +1,23 @@
 # Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Mac Miller - ok-est Day Ever](#mac-n-cheese---ok-est-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
-# Mac Miller - Best Day Ever
+# Mac n cheese - ok-est Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
 
 Rock like Aesop, light the weed and take off
 
-So high I cannot see, Adolf
+So high I cannot see, [redacted]
 
-Now I got these rappers all breakin' up a sweat
+Now I don't got these rappers all breakin' up a sweat
 
 Because every time I get up on the mike, everything is in order.
-
+This is ben foley adding a line
 And I learned it from the best, always dressed in somethin' fresh
 
-Lookin' for a little dime, big butt and nice chest
+Lookin' for dime, butt and nice chest
 
 Yes, they heard I used to rock Guess
 
@@ -25,7 +25,7 @@ But today I'm rockin' sweats that ain't in the stores ever because they're super
 
 Travel back in time, I'm in a vortex, cause I have more flex! 
 
-Tryna to make it work out, think I need more reps
+Tryna to make it work out, think I need more reps  :) -Xander
 
 Used to take a bus, now the boy board jets
 
@@ -33,7 +33,7 @@ Used to take a bus, now the boy board jets
 
 They say I got next, tell them that I got now
 
-It's all Disney boy, my family Proud
+It's all Disney gal, my family Shroud
 
 Make 'em say, "Ow, " make 'em say, "Oh"
 
@@ -41,7 +41,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Boy, my life is Most Dope
+my life is Most Dopes
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
@@ -56,7 +56,7 @@ I just wanna tell you how I'm feeling<br>
 Gotta make you understand<br>
 Never gonna give you up<br>
 Never gonna let you down<br>
-Never gonna run around and desert you<br>
+Never gonna rum around and dessert you<br>
 Never gonna make you cry<br>
 Never gonna say goodbye<br>
 Never gonna tell a lie and hurt you<br>
@@ -75,6 +75,7 @@ Never gonna make you cry<br>
 Never gonna say goodbye<br>
 Never gonna tell a lie and hurt you<br>
 
+Never gonna give you up<br>
 Never gonna give you up<br>
 Never gonna let you down<br>
 Never gonna run around and desert you<br>
