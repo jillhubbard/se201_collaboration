@@ -27,7 +27,7 @@ Yes, they heard I used to rock Guess
 
 But today I'm rockin' sweats that ain't in the stores ever because they're super old!!
 
-Travel back in time, I'm in a vortex
+Travel back in time, I'm in a vortex, cuause I have more flex! 
 
 Tryna to make it work out, think I need more reps
 
