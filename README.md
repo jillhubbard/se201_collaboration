@@ -29,7 +29,7 @@ Used to take a bus, now the boy board jets
 
 They say I got next, tell them that I got now
 
-It's all Disney boy, my family Proud
+It's all Disney gal, my family Shroud
 
 Make 'em say, "Ow, " make 'em say, "Oh"
 
