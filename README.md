@@ -1,13 +1,8 @@
-# Mac n cheese - ok-est Day Ever
 # Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
-* [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
-=======
-# Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Mac Miller - Best Day Ever](#mac-miller---#mac-n-cheese---ok-est-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
-# Mac n cheese - Best Day Ever
+# Mac n cheese - ok-est Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
@@ -46,7 +41,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Man, my life is Most Dope
+my life is Most Dopes
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
@@ -61,7 +56,7 @@ I just wanna tell you how I'm feeling<br>
 Gotta make you understand<br>
 Never gonna give you up<br>
 Never gonna let you down<br>
-Never gonna run around and desert you<br>
+Never gonna rum around and dessert you<br>
 Never gonna make you cry<br>
 Never gonna say goodbye<br>
 Never gonna tell a lie and hurt you<br>
