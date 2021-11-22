@@ -6,7 +6,11 @@
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
 # Mac Miller - Best Day Ever
+<<<<<<< HEAD
 >>>>>>> 26f73a7d9d526b54f2d338727f60cef0eda1300d
+=======
+>>>>>>> 769f803d1463c23cd2a9e79c701caf73b4669b9d
+>>>>>>> b8986615179ce959762c9929a5f55fe0beebb49c
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
@@ -15,19 +19,19 @@ Rock like Aesop, light the weed and take off
 
 So high I cannot see, [redacted]
 
-Now I got these rappers all breakin' up a sweat
+Now I don't got these rappers all breakin' up a sweat
 
 Because every time I get up on the mike, everything is in order.
 
 And I learned it from the best, always dressed in somethin' fresh
 
-Lookin' for a little dime, big butt and nice chest
+Lookin' for a little dime, butt and nice chest
 
 Yes, they heard I used to rock Guess
 
 But today I'm rockin' sweats that ain't in the stores ever because they're super old!!
 
-Travel back in time, I'm in a vortex, cuause I have more flex! 
+Travel back in time, I'm in a vortex, cuause I have more flex!
 
 Tryna to make it work out, think I need more reps
 
