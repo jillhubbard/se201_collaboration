@@ -76,6 +76,7 @@ Never gonna say goodbye<br>
 Never gonna tell a lie and hurt you<br>
 
 Never gonna give you up<br>
+Never gonna give you up<br>
 Never gonna let you down<br>
 Never gonna run around and desert you<br>
 Never gonna make you cry<br>
