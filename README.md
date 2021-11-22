@@ -1,9 +1,13 @@
+# Mac n cheese - ok-est Day Ever
+# Table of contents
+* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
+=======
 # Table of contents
 * [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
-# Mac Miller - Best Day Ever
-
+# Mac n cheese - Best Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
@@ -15,7 +19,7 @@ So high I cannot see, [redacted]
 Now I don't got these rappers all breakin' up a sweat
 
 Because every time I get up on the mike, everything is in order.
-
+This is ben foley adding a line
 And I learned it from the best, always dressed in somethin' fresh
 
 Lookin' for a little dime, butt and nice chest
@@ -26,7 +30,7 @@ But today I'm rockin' sweats that ain't in the stores ever because they're super
 
 Travel back in time, I'm in a vortex, cuause I have more flex!
 
-Tryna to make it work out, think I need more reps
+Tryna to make it work out, think I need more reps  :) -Xander
 
 Used to take a bus, now the boy board jets
 
@@ -42,7 +46,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Boy, my life is Most Dope
+Man, my life is Most Dope
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
