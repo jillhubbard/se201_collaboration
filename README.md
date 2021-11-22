@@ -7,7 +7,7 @@ Rock like Aesop, light the weed and take off
 
 So high I cannot see, Adolf
 
-Now I got these rappers all breakin' up a sweat
+Now I don't got these rappers all breakin' up a sweat
 
 'Cause every time I get up on the mic, it come correct
 
