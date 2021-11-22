@@ -2,7 +2,7 @@
 * [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
-# Mac Miller - Best Day Ever
+# Mac n cheese - Best Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
@@ -41,7 +41,7 @@ The hoes that tell me "yes", the same ones that tell you "No"
 
 Woah, I ain't just an Average Joe, way above the average flow
 
-Boy, my life is Most Dope
+Man, my life is Most Dope
 
 # Never Gonna Give You Up
 **Artist:** Rick Astley
