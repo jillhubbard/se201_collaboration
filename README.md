@@ -1,5 +1,5 @@
 # Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---#mac-n-cheese---ok-est-day-ever)
+* [Mac Miller - ok-est Day Ever](#mac-n-cheese---ok-est-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
 # Mac n cheese - ok-est Day Ever
@@ -22,7 +22,7 @@ Yes, they heard I used to rock Guess
 
 But today I'm rockin' sweats that ain't in the stores ever because they're super old!!
 
-Travel back in time, I'm in a vortex, cuause I have more flex!
+Travel back in time, I'm in a vortex, cause I have more flex! 
 
 Tryna to make it work out, think I need more reps  :) -Xander
 
@@ -38,7 +38,7 @@ Make 'em say, "Ow, " make 'em say, "Oh"
 
 The hoes that tell me "yes", the same ones that tell you "No"
 
-Woah, I ain't just an Average Joe, way above the average flow
+I ain't just an Average Joe, way above the average flow
 
 my life is Most Dopes
 
