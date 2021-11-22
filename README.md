@@ -1,11 +1,11 @@
-# Mac Miller - Best Day Ever
+# Mac n cheese - Best Day Ever
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
 
 Rock like Aesop, light the weed and take off
 
-So high I cannot see, Adolf
+So high I cannot see, [redacted]
 
 Now I got these rappers all breakin' up a sweat
 
@@ -17,7 +17,7 @@ Lookin' for a little dime, big butt and nice chest
 
 Yes, they heard I used to rock Guess
 
-But today I'm rockin' clothes that ain't in the stores ever.
+But today I'm rockin' sweats that ain't in the stores ever because they're super old!
 
 Travel back in time, I'm in a vortex
 
@@ -29,7 +29,7 @@ Used to take a bus, now the boy board jets
 
 They say I got next, tell them that I got now
 
-It's all Disney boy, my family Proud
+It's all Disney gal, my family Shroud
 
 Make 'em say, "Ow, " make 'em say, "Oh"
 
