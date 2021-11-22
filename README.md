@@ -19,7 +19,7 @@ So high I cannot see, [redacted]
 Now I don't got these rappers all breakin' up a sweat
 
 Because every time I get up on the mike, everything is in order.
-
+This is ben foley adding a line
 And I learned it from the best, always dressed in somethin' fresh
 
 Lookin' for a little dime, butt and nice chest
@@ -30,7 +30,7 @@ But today I'm rockin' sweats that ain't in the stores ever because they're super
 
 Travel back in time, I'm in a vortex, cuause I have more flex!
 
-Tryna to make it work out, think I need more reps
+Tryna to make it work out, think I need more reps  :) -Xander
 
 Used to take a bus, now the boy board jets
 
