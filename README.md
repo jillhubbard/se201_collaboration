@@ -1,4 +1,12 @@
+<<<<<<< HEAD
 # Mac n cheese - Best Day Ever
+=======
+# Table of contents
+* [Mac Miller - Best Day Ever](#mac-miller---best-day-ever)
+* [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
+
+# Mac Miller - Best Day Ever
+>>>>>>> 769f803d1463c23cd2a9e79c701caf73b4669b9d
 I never take a day off
 
 Work around the clock, my engineer gettin' paid off
@@ -9,7 +17,7 @@ So high I cannot see, [redacted]
 
 Now I don't got these rappers all breakin' up a sweat
 
-'Cause every time I get up on the mic, it come correct
+Because every time I get up on the mike, everything is in order.
 
 And I learned it from the best, always dressed in somethin' fresh
 
@@ -62,7 +70,7 @@ Your heart's been aching but you're too shy to say it<br>
 Inside we both know what's been going on<br>
 We know the game and we're gonna play it<br>
 And if you ask me how I'm feeling<br>
-Don't tell me you're too blind to see<br>
+Help I'm trapped in this file, please let me out<br>
 
 Never gonna give you up<br>
 Never gonna let you down<br>
