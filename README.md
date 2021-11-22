@@ -13,7 +13,7 @@ So high I cannot see, Adolf
 
 Now I got these rappers all breakin' up a sweat
 
-'Cause every time I get up on the mic, it come correct
+Because every time I get up on the mike, everything is in order.
 
 And I learned it from the best, always dressed in somethin' fresh
 
@@ -21,9 +21,9 @@ Lookin' for a little dime, big butt and nice chest
 
 Yes, they heard I used to rock Guess
 
-But today I'm rockin' clothes that ain't in the stores ever.
+But today I'm rockin' sweats that ain't in the stores ever because they're super old!!
 
-Travel back in time, I'm in a vortex
+Travel back in time, I'm in a vortex, cuause I have more flex! 
 
 Tryna to make it work out, think I need more reps
 
@@ -66,7 +66,7 @@ Your heart's been aching but you're too shy to say it<br>
 Inside we both know what's been going on<br>
 We know the game and we're gonna play it<br>
 And if you ask me how I'm feeling<br>
-Don't tell me you're too blind to see<br>
+Help I'm trapped in this file, please let me out<br>
 
 Never gonna give you up<br>
 Never gonna let you down<br>
