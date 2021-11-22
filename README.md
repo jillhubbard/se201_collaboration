@@ -1,5 +1,5 @@
 # Table of contents
-* [Mac Miller - Best Day Ever](#mac-miller---#mac-n-cheese---ok-est-day-ever)
+* [Mac Miller - ok-est Day Ever](#mac-n-cheese---ok-est-day-ever)
 * [Rick-Astley - Never Gonna Give You Up](#never-gonna-give-you-up)
 
 # Mac n cheese - ok-est Day Ever
