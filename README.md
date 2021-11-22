@@ -13,7 +13,7 @@ Now I got these rappers all breakin' up a sweat
 
 And I learned it from the best, always dressed in somethin' fresh
 
-Lookin' for a little dime, huge butt and nice chest
+Lookin' for a little dime, butt and nice chest
 
 Yes, they heard I used to rock Guess
 
