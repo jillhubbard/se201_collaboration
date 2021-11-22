@@ -21,7 +21,7 @@ But today I'm rockin' sweats that ain't in the stores ever because they're super
 
 Travel back in time, I'm in a vortex
 
-Tryna to make it work out, think I need more reps
+Tryna to make it work out, think I need more reps  :) -Xander
 
 Used to take a bus, now the boy board jets
 
