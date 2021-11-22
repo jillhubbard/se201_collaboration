@@ -16,7 +16,7 @@ Lookin' for a little dime, big butt and nice chest
 
 Yes, they heard I used to rock Guess
 
-But now I'm rockin' clothes that ain't in the stores yet
+But today I'm rockin' clothes that ain't in the stores ever.
 
 Travel back in time, I'm in a vortex
 
