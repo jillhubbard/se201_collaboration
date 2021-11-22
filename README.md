@@ -13,7 +13,7 @@ So high I cannot see, Adolf
 
 Now I got these rappers all breakin' up a sweat
 
-'Cause every time I get up on the mic, it come correct
+Because every time I get up on the mike, everything is in order.
 
 And I learned it from the best, always dressed in somethin' fresh
 
