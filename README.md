@@ -18,9 +18,9 @@ And I learned it from the best, always dressed in somethin' fresh
 
 Lookin' for dime, butt and nice chest
 
-Yes, they heard I used to rock Guess
+Yes, they heard I used to rock Guess what it's true.
 
-But today I'm rockin' sweats that ain't in the stores ever because they're super old!!
+But today I'm rockin' sweats that ain't in the stores ever because they're super old!!👵🏪
 
 Travel back in time, I'm in a vortex, cause I have more flex! 
 
