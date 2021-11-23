@@ -30,7 +30,7 @@ Used to take a bus, now the boy board jets
 
 'Cause K.I.D.S. got me buzzin' like a fuckin' hornet
 
-They say I got next, tell them that I got now
+They say I got next, tell them that I got pow
 
 It's all Disney gal, my family Shroud
 
